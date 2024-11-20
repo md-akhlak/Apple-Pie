@@ -7,6 +7,6 @@
 
 
 
+<img width="805" alt="Screenshot 2024-11-20 at 11 33 19 AM" src="https://github.com/user-attachments/assets/fd57a66c-5e46-4dc2-b15c-f132c12ac731">
 
-<img width="805" alt="Screenshot 2024-11-20 at 11 32 36 AM" src="https://github.com/user-attachments/assets/6a6189de-66f5-4ae2-8dcc-79bf45098ecd">
 
